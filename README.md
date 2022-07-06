@@ -1,5 +1,5 @@
 # MercadoTech
 Franco Ansaldi
-Emiliano Rodriguez 
+Emiliano Rodriguez 🥸️
 Carla Perez 
 Belen Balsemao
